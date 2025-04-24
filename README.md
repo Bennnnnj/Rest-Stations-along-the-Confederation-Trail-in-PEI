@@ -30,3 +30,6 @@ users' fundamental necessities while letting them relax and impress passengers.
 Out of the three alternate designs, the Octogono Resting Spot was chosen as the main design
 with the help of Pugh method
 
+Out of the three alternate designs, the Octogono Resting Spot was chosen as the main design
+with the help of Pugh method
+
